@@ -1,0 +1,5 @@
+Dune - Frank Herbert, 
+1984 - george orwell, 
+The Master and Margarita - Mikhail Bulgakov,
+Crime and punishment - Fyodor dostoevsky,
+The Idiot - Fyodor dostoevsky,
